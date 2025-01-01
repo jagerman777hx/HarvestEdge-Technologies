@@ -1,0 +1,1 @@
+HarvestEdge Technologies transforms traditional farming with cutting-edge solutions like AI-driven monitoring and smart irrigation systems. Our website showcases our innovative products, services for sustainable agriculture, and detailed project collaborations. With an intuitive design, visitors can explore how we are redefining agriculture for a greener future.
